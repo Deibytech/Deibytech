@@ -9,4 +9,4 @@ I help developers reach their winth my training.
 ### Where to fin me
 
 - [Youtube](https://www.youtube.com/)
-- [Twitter](https://x.com/)
+- [Instagram](https://instagram.com/)
